@@ -31,4 +31,4 @@ This project is licensed under the [Creative Commons Attribution-NonCommercial-N
 
 ## Contact  
 Kylian Preining — k.preining.vramx@gmail.com  
-[LinkedIn](https://www.linkedin.com/in/kylianpreining)
+[LinkedIn](www.linkedin.com/in/kylian-preining-10851536b)
